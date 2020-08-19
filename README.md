@@ -9,6 +9,3 @@ C#, C++, and Java is where it's at in my book as I absolutely love Object Orient
 My personal motto is: Always enjoy a good challenge and never stop learning!
 
 If you're interested, feel free to take a look around.
-
-
-For business inquiries: jonathanmartyka@gmail.com
